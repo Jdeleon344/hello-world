@@ -1,2 +1,3 @@
 # hello-world
 this is my first repository...
+I am Jose, I like many things including but not  limited to basketball playing video games and watching anime. my favorite anime at the moment is AOT. . . . .  . . .  .. . . .. ... .. .
